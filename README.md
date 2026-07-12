@@ -37,7 +37,7 @@ ________________________________________________________________________________
     𝙋𝙚𝙧𝙨𝙤𝙣𝙖𝙡𝙞𝙩𝙮 𝙩𝙧𝙖𝙞𝙩𝙨: Quite rude at times, stubborn, smart (for someone who taught himself everything), self-critical, quiet, blunt, cold, deceitful, selfish, tidy (so much more)
 </p>
 <p align="center">
-    𝙇𝙞𝙠𝙚𝙨: (Boy would never tell you what he likes but I'll do it for you) Lemons, nature, darkness, green colors, cars, sharks, fish, cats, baggy clothing, stealing
+    𝙇𝙞𝙠𝙚𝙨: (Boy would never tell you what he likes but I'll do it for you) Lemons, nature, darkness, green colors, cars, sharks, fish, cats, baggy clothing, stealing, books
 </p>
 <p align="center">
     𝘿𝙞𝙨𝙡𝙞𝙠𝙚𝙨: Vastly open spaces, bright areas, people, loud places

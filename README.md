@@ -7,7 +7,7 @@
 </p>
 _________________________________________________________________________________________________________________________________________
 <p align="center">
-    𝙆𝙣𝙤𝙬𝙣 𝙖𝙡𝙞𝙖𝙨𝙚𝙨: Boy(primarily), beast, little guy, rat
+    𝙆𝙣𝙤𝙬𝙣 𝙖𝙡𝙞𝙖𝙨𝙚𝙨: Boy(primarily), beast, little guy, rat, trout, fish
 </p>
 <p align="center">
     𝙍𝙚𝙖𝙡 𝙣𝙖𝙢𝙚: Jackery Fraser(he's unaware of his real name, Nowhere made him forget it)

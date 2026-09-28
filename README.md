@@ -1,4 +1,7 @@
 <p align="center">
+  <img src="https://scontent-mia5-1.xx.fbcdn.net/v/t1.15752-9/825312538_1064619976390225_3055023832361911153_n.jpg?stp=dst-jpg_s960x960_tt6&_nc_cat=101&ccb=1-7&_nc_sid=9f807c&_nc_ohc=9XiiUk7CwOwQ7kNvwEtYolD&_nc_oc=AdqM210AyjDwPz7mk0uhMynzqX5NnNBkdI2IYqFmVIGS9K8coGUhMbSfWUATIC6_WvQ&_nc_ad=z-m&_nc_cid=0&_nc_zt=23&_nc_ht=scontent-mia5-1.xx&_nc_ss=7a22e&oh=03_Q7cD6gEAh3gOMOWotImFpkmxryw-ivuPDIW87FDJt5xQdTMuhg&oe=6AE170D2" width=400>
+</p>
+<p align="center">
    𝑻𝒉𝒊𝒔 𝑮𝒊𝒕𝑯𝒖𝒃 𝒊𝒔 𝒇𝒐𝒓 𝒎𝒚 𝑳𝒊𝒕𝒕𝒍𝒆 𝑵𝒊𝒈𝒉𝒕𝒎𝒂𝒓𝒆𝒔 𝑶𝑪, 𝑩𝒐𝒚, 𝒘𝒉𝒐𝒎 𝑰 𝒖𝒔𝒆 𝒒𝒖𝒊𝒕𝒆 𝒐𝒇𝒕𝒆𝒏.  
 </p>
 <p align="center">
@@ -55,9 +58,4 @@ ________________________________________________________________________________
     𝘼𝙐𝙨: Jackalope satyr version, non-traumatized Boy where he didn't go to Nowhere, kemonomimi version, normal cat version, lab AU
 </p>
 ________________________________________________________________________________________________________________________________________
-<p align="center">
-  𝙀𝙭𝙩𝙧𝙖 𝙩𝙝𝙞𝙣𝙜𝙨!
-</p>
-<p align="center">
-  
-</p>
+

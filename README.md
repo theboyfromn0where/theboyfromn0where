@@ -18,6 +18,9 @@
     𝙍𝙖𝙘𝙚: White
 </p>
 <p align="center">
+    𝙂𝙚𝙣𝙙𝙚𝙧: Cis Male
+</p>
+<p align="center">
     𝙃𝙖𝙞𝙧 𝙘𝙤𝙡𝙤𝙧/𝙩𝙮𝙥𝙚: Brown; mixture of curly and wavy
 </p>
 <p align="center">
